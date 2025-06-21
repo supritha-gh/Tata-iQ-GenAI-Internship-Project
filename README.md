@@ -31,6 +31,8 @@ This virtual program was powered by Tata iQ via Forage and simulated real-world 
 
 ---
 
-📌 **Certificate of Completion:** (Tata_iQ_Certificate.pdf)
+📌 **Certificate of Completion:** [Click to View](Tata_iQ_Certificate.pdf)
+
+
 
 
